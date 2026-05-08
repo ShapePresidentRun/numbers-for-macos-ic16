@@ -1,4 +1,4 @@
-
+Enhance Numbers for macOS with automatic Numbers for macOS Automation | version-control + symbolic-computation, the #1 automation. Includes version-control and
 
 
 
